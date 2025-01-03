@@ -1,2 +1,2 @@
 # AI-project
-idk.
+do not read me 
